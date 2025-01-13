@@ -66,8 +66,8 @@ I’m open to collaborating on:
 - 🤖 AI-integrated solutions.  
 
 📫 **Let’s connect**:  
-- LinkedIn: [Your LinkedIn Profile URL]  
-- Email: [Your Email Address]  
+- LinkedIn: https://www.linkedin.com/in/vickyk01/ 
+- Email: vickymishra2028@gmail.com 
 
 Let’s build something amazing together! 🌟  
 
