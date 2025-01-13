@@ -67,7 +67,8 @@ I’m open to collaborating on:
 
 📫 **Let’s connect**:  
 - LinkedIn: https://www.linkedin.com/in/vickyk01/ 
-- Email: vickymishra2028@gmail.com 
+- Email: vickymishra2028@gmail.com
+- Ui Designs: https://dribbble.com/vickym0
 
 Let’s build something amazing together! 🌟  
 
